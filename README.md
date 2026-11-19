@@ -1,1 +1,1 @@
-> *“I like gradients, gates, and everything in between.”*
+> *“The interesting things live at the boundaries.”*
