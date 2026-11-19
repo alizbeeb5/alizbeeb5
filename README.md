@@ -1,1 +1,1 @@
-I build models. Sometimes they learn. 🧠 🤷
+> *“I like gradients, gates, and everything in between.”*
